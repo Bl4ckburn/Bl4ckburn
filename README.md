@@ -1,0 +1,1 @@
+Hi! My name is Michał and Web Developing is one of my biggest passions. I have over 3 years of skills in developing and implementing websites, and I continue on with developing my competences. I love working with dynamic, creative projects during each step of their production. Let us make something really amazing, together!
